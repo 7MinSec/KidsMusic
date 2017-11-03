@@ -3,21 +3,22 @@ SJ Kids Music
 
 [Little Lambs]()
 
-- **[All songs](ll/index.md)**
-- [A single song](ll/somesong.md)
+- **Something bold**
+- [All songs]()
+- [A single song]()
 
 -   ----
 
-[Singing Shepherds]()
-
-- **[All songs](ss/index.md)**
-- [A single song](ss/somesong.md)
+- **Something else**
+- [Singing Shepherds]()
+- [All songs]()
+- [A single song]()
 
 - ----
 
-[When do we sing up front?](schedule.md)
+[When do we sing up front?]()
 
-- [Here's some other sub-menu](index.md)
+- [Here's some other sub-menu]()
 
 
 <!-- Below is just a bunch of stuff I borrowed off the SANS Blue Team Wiki so I can build my own menu structure
