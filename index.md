@@ -1,9 +1,9 @@
 Welcome to SJ kids music!
 ==================
 
-What's this about?
+Welcome!
 --------
-Answer
+Use the menus above to see the lyrics and ###
 
 What about another question?
 --------
