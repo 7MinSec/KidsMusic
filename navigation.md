@@ -2,20 +2,9 @@ SJ Kids Music
 ======
 
 [Little Lambs]()
-
-- **Something bold**
-- [All songs]()
-- [A single song]()
+- [Songs and lyrics](/ll/index.md)
 
 -   ----
 
-- **Something else**
-- [Singing Shepherds]()
-- [All songs]()
-- [A single song]()
-
-- ----
-
-- [When do we sing up front?]()
-- [Here's some other sub-menu]()
-
+[Singing Shepherds]()
+- [Songs and lyrics](/ss/index.md)
