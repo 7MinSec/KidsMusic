@@ -10,3 +10,7 @@ SJ Kids Music
 [Singing Shepherds]()
 
 - [Songs and lyrics](/ss/index.md)
+
+[Christmas program music!](christmas.md)
+
+[Calendar of events](calendar.md)
