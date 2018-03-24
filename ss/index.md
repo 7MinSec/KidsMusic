@@ -57,9 +57,9 @@ That it’s my joy to honor You
 In all I do, I honor You
 
 **BRIDGE**
-You are my King
-You are my King
-Jesus You are my King
+You are my King  
+You are my King  
+Jesus You are my King  
 Jesus You are my King
 
 **CHORUS**
@@ -96,10 +96,10 @@ Because nothing on Earth is as beautiful as you (repeat)
 Better is One Day
 --------
 How lovely is Your dwelling place  
-oh Lord Almighty  
+Hh Lord Almighty  
 My soul longs and even faints for You  
 For here my heart is satisfied  
-within Your presence  
+Within Your presence  
 I sing beneath the shadow of Your wings  
 
 **CHORUS**  
@@ -145,6 +145,8 @@ Whoop, whoop yeah!
 
 Christ Be All Around Me
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419055876&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 As I wait, heart of God  
 Satisfy and sustain  
 As I hear, voice of God  
@@ -157,9 +159,9 @@ Before and behind me
 In every eye that sees me  
 Christ be all around me
 
-Above and below me
-Before and behind me
-In every eye that sees me
+Above and below me  
+Before and behind me  
+In every eye that sees me  
 Christ be all around me (yeah)
 
 **V2**  
@@ -232,6 +234,8 @@ La la la la la la…
 
 Forever Reign
 ------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419055868&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 You are good You are good  
 When there's nothing good in me  
 You are love You are love  
@@ -269,6 +273,8 @@ Jesus Jesus (*repeat 4x*)
 
 Hail Jesus
 -------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419055864&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Hail Jesus! You're my King! (*echo*)  
 Your life frees me to sing (*echo*)   
 I will praise You all of my days (*echo*)    
@@ -356,4 +362,189 @@ How great is our God
 
 **CHORUS**
 
-*LEFT OFF AT I AM A C
+I Am a C
+-----
+I am a C  
+I am a C-H  
+I am a C-H-R-I-S-T-I-A-N  
+And I have C-H-R-I-S-T in my H-E-A-R-T and I will  
+L-I-V-E E-T-E-R-N-A-L-L-Y  
+
+If I Had a Hammer
+----
+**VERSE 1**  
+If I had a hammer tell you what I’d do  
+Build a temple where the spirit runs through  
+I ain’t got a hammer but I won’t cry  
+Cause the tools we build with are you and I   
+
+**CHORUS**  
+Whoa oh oh oh p-e-a-c-e, whoop whoop!  
+Gotta be a tool for p-e-a-c-e, whoop whoop!  
+Gotta be a tool for p-e-a-c-e, whoop whoop!  
+Gotta be a tool for peace
+
+**VERSE 2**  
+I build all night I build all day
+I’m gonna tell the world nowAbout the carpenter’s way
+But I won’t stop ‘cause it be thy will
+‘Cause where two or three are gathered
+The temple is built
+
+**CHORUS**
+
+**VERSE 3**  
+Jesus loves me this I know
+For the Bible tells me so
+Little ones to him belong T
+hey are weak but he is strong
+
+**CHORUS**
+
+If You’ve Got Peace in Your Heart
+-----
+**VERSE 1**  
+If you’ve got peace in your heart  
+A peace that will never depart
+
+**CHORUS**  
+Lift up His name, sing of His glory  
+Lift up His name, sing of His glory  
+Lift up His name, sing of His glory and love  
+His love
+
+2. If you’ve got love…
+3. If you’ve got joy...
+
+Lord I Lift Your Name on High
+----
+**VERSE**  
+Lord I lift Your name on high  
+Lord I love to sing your praises  
+I’m so glad You’re in my life  
+I’m so glad You came to save us  
+
+**CHORUS**  
+You came from heaven to earth to show the way  
+From the earth to the cross my debt to pay  
+From the cross to the grave, from the grave to the sky  
+Lord I lift Your name on high  
+
+Lighthouse
+----
+**VERSE1**  
+In my wrestling and in my doubts  
+In my failures You won't walk out  
+Your great love will lead me through  
+You are the peace in my troubled sea, oh oh  
+You are the peace in my troubled sea  
+
+**VERSE2**  
+In the silence, You won't let go  
+In the questions, Your truth will hold  
+Your great love will lead me through  
+You are the peace in my troubled sea, oh oh  
+You are the peace in my troubled sea
+
+**CHORUS**  
+My lighthouse, my lighthouse  
+Shining in the darkness, I will follow You  
+My lighthouse, my lighthouse (oh oh)  
+I will trust the promise,  
+You will carry me safe to shore (Oh-oh-oh-oh-oh)  
+Safe to shore (Oh-oh-oh-oh-oh)  
+Safe to shore (Oh-oh-oh-oh-oh)  
+Safe to shore
+
+**VERSE3**  
+I won't fear what tomorrow brings  
+With each morning I'll rise and sing  
+My God's love will lead me through  
+You are the peace in my troubled sea, oh oh  
+You are the peace in my troubled sea, oh oh
+
+**CHORUS**
+
+Open the Eyes of My Heart
+-----
+
+**VERSE**  
+Open the eyes of my heart Lord  
+Open the eyes of my heart  
+I want to see you, I want to see you  
+
+**CHORUS**  
+To see You high and lifted up  
+Shining in the light of Your glory  
+Pour out Your power and love  
+As we sing holy, holy, holy  
+Holy, holy, holy, I want to see You
+
+**BRIDGE**  
+Holy holy holy  
+Holy holy holy  
+Holy holy holy  
+I want to see you
+
+Pharoah Pharoah
+-----
+
+**CHORUS**  
+Pharaoh, Pharaoh, whoa baby, let my people go!  
+Pharaoh, Pharaoh, whoa baby, let my people go!  
+
+**VERSE1**  
+Well, the burning bush told me just the other day  
+That I should come over here and say  
+Got to get my people out of Pharaoh's hand  
+And lead them on over to the Promised Land
+
+**CHORUS**
+
+**VERSE2**  
+Well me and and my people goin' to the Red Sea  
+And ol’ Pharaoh's army comin' after me  
+I took my staff, stuck it in the sand  
+And all of God's people walked on dry land
+
+**VERSE3**  
+Well ol’ Pharoah’s army is a comin’ too  
+So what did you think that I did do  
+I raised my rod and cleared my throat  
+And all of Pharoah’s army did the dead man’s float  
+
+The Rock
+----
+I will call upon the Lord  
+Who is worthy to be praised  
+So shall I be saved from my enemies  
+The Lord liveth and blessed be the Rock  
+And let the God of my salvation be exalted
+
+Rooftops
+----
+**VERSE1**  
+I was lost I was afraid until you found me   
+and you took me by the hand  
+I was bound I was in chains until you came and set me free   
+to dance again
+
+Now I'm screaming from the top of my lungs  
+
+**CHORUS**  
+You are good I know  
+I'll shout it from the rooftops  
+You are good I know  
+That Your love will last forever  
+You are good
+
+**VERSE1**
+
+**CHORUS**
+
+**BRIDGE**  
+I was blind but now I see  
+From the rooftops I will sing  
+I was bound but now I’m free (2x)
+
+**CHORUS**
