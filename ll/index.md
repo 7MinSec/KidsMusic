@@ -28,6 +28,8 @@ So let’s just praise the Lord
 
 Fewa Fewa
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002104&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Sing a little song for Jesus you’ll be right  
 Sing a little song for Jesus you’ll be right  
 Fewa, fewa hot tuna  
@@ -41,6 +43,8 @@ Sing a little song for Jesus you’ll be right
 
 Fill My Cup
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002092&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Fill my cup and let it overflow (oh, oh)  
 Fill my cup and let it overflow (oh yeah!)  
 Fill my cup and let it overflow, let it overflow with love
@@ -56,6 +60,8 @@ Fill my cup and let it overflow, let it overflow with love
 
 Give Me Oil in My Lamp
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002084&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Give me oil in my lamp, keep me burning  
 Give me oil in my lamp, I pray (I pray!)  
 Give me oil in my lamp, keep me burning  
@@ -72,6 +78,8 @@ Sing hosanna, to the King of Kings
 
 He's Got the Whole World in His Hands
 -------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002060&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 He’s got the whole world in His hands  
 He’s got the whole world in His hands  
 He’s got the whole world in His hands  
@@ -83,6 +91,8 @@ He’s got the whole world in His hands
 
 Hippo Song
 -------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002040&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 In the beginning God made the sea
 And the forest filled with trees  
 He made the mountains up so high
@@ -98,6 +108,8 @@ Hip hip hurray God made all of us! (repeat)
 
 I'll Do My Best
 -------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002028&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Love, I’ll love, I’ll love you Lord forever  
 Love, I’ll love, I’ll love you Lord forever  
 
@@ -111,6 +123,8 @@ I’ll do my best for you
 
 Inward Outward
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419002008&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 I’m inward outward upward downward happy all the time  
 I’m inward outward upward downward happy all the time  
 When Jesus Christ came in and washed away my sin  
@@ -156,6 +170,8 @@ I pray the Lord my soul to keep, I just want to be a sheep ba-ba-ba-ba!
 
 My God is So Great
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419001984&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 My God is so great, so strong and so mighty  
 There’s nothing my God can not do (ooo-ooo)! (REPEAT)  
 
@@ -192,6 +208,8 @@ Praise ye the Lord!
 
 This Little Light of Mine
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419001956&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 This little light of mine, I’m gonna let it shine  
 This little light of mine, I’m gonna let it shine  
 This little light of mine, I’m gonna let it shine  
@@ -203,6 +221,8 @@ Let it shine, let it shine, let it shine
 
 Trumpet Sounds
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419001920&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Praise the Lord with trumpet sounds (echo)
 Trumpet sounds (echo)  
 Trumpet sounds (echo)
@@ -221,6 +241,8 @@ Alleluia, alleluia, alleluia, amen!
 
 Who is the King of the Jungle
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419001892&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Who is the King of the jungle (who-who)?  
 Who is the King of the sea (bubble-bubble-bubble)?  
 Who is the King of the universe  
@@ -231,6 +253,8 @@ He is the King of the universe, the jungle and the sea
 
 Zaccheus
 --------
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/419001848&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 Zacchaeus was a wee little man  
 and a wee little man was he  
 He climbed up in a sycamore tree  
