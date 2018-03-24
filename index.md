@@ -1,6 +1,8 @@
 Welcome to SJ kids music!
 ==================
 
+![alt text](music.jpg "SJ kids music!")
+
 Welcome!
 --------
 Use the menus above to see the lyrics for each kiddo singing group!
