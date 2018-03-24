@@ -10,6 +10,9 @@ The B-I-B-L-E!
 
 Father Abraham
 --------
+
+<audio src="ll/Father Abraham.mp3" controls preload></audio>
+
 Father Abraham had many sons,  
 And many sons had Father Abraham  
 I am one of them, and so are you  

@@ -5,8 +5,6 @@ SJ Kids Music
 
 - [Songs and lyrics](/ll/index.md)
 
--   ----
-
 [Singing Shepherds]()
 
 - [Songs and lyrics](/ss/index.md)

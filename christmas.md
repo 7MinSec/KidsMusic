@@ -2,7 +2,7 @@
 
 
 **Narration**:  And it came to pass in those days, that there went out a decree from Caesar Augustus, that all the world should be taxed.  And all went to be taxed, every one into his own city.  
-Genevive Lemke:  And Joseph also went up from Galilee, out of the city of Nazareth, into Judea, unto the city of David, which is called Bethlehem (because he was of the house and lineage of David).
+Narrator:  And Joseph also went up from Galilee, out of the city of Nazareth, into Judea, unto the city of David, which is called Bethlehem (because he was of the house and lineage of David).
 
 In a Little Stable – Little Lambs
 --------
