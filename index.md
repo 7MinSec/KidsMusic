@@ -13,3 +13,7 @@ Updates and upcoming events
 * **Sunday, March 25**: Singing Shepherds and Little Lambs sing "Hosanna" at the 10:30 service.
 
 *Open the [calendar](calendar.md) for all important dates, such as when each kid group sings up front.*
+
+Questions/comments/concerns?
+-----
+Shoot [Brian](https://brianjohnson.tv/contact) a note.
