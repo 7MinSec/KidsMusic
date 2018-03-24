@@ -1,7 +1,7 @@
 Welcome to SJ kids music!
 ==================
 
-![alt text](music.jpg "SJ kids music!")
+<img src=music.jpg width=100>
 
 Welcome!
 --------
