@@ -1,7 +1,7 @@
 Welcome to SJ kids music!
 ==================
 
-<img src=music.jpg width=1000>
+<img src=music.jpg width=300>
 
 Welcome!
 --------
