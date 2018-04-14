@@ -9,10 +9,7 @@ Use the menus above to see the lyrics for each kiddo singing group!
 
 Updates and upcoming events
 --------
-
-* **Sunday, March 25**: Singing Shepherds and Little Lambs sing "Hosanna" at the 10:30 service.
-
-*Open the [calendar](calendar.md) for all important dates, such as when each kid group sings up front.*
+Open the [calendar](calendar.md) for all important dates, such as when each kiddo group sings up front.
 
 Questions/comments/concerns?
 -----

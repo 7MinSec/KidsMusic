@@ -2,7 +2,7 @@
 
 Upcoming
 ------
-* **Sunday, April 15**: Little Lambs sing up front at 10:30 service
+~~* **Sunday, April 15**: Little Lambs sing up front at 10:30 service~~ - *cancelled due to bad weather!  We'll reschedule soon.*
 
 * **Sunday May 13**: Singing Shepherds sing up front at the 10:30 service
 
