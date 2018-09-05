@@ -385,19 +385,19 @@ Gotta be a tool for p-e-a-c-e, whoop whoop!
 Gotta be a tool for peace
 
 **VERSE 2**  
-I build all night I build all day
-I’m gonna tell the world nowAbout the carpenter’s way
-But I won’t stop ‘cause it be thy will
-‘Cause where two or three are gathered
+I build all night I build all day  
+I’m gonna tell the world nowAbout the carpenter’s way  
+But I won’t stop ‘cause it be thy will  
+‘Cause where two or three are gathered  
 The temple is built
 
 **CHORUS**
 
 **VERSE 3**  
-Jesus loves me this I know
-For the Bible tells me so
-Little ones to him belong T
-hey are weak but he is strong
+Jesus loves me this I know  
+For the Bible tells me so  
+Little ones to him belong  
+They are weak but he is strong
 
 **CHORUS**
 
@@ -450,9 +450,9 @@ You are the peace in my troubled sea
 My lighthouse, my lighthouse  
 Shining in the darkness, I will follow You  
 My lighthouse, my lighthouse (oh oh)  
-I will trust the promise,  
-You will carry me safe to shore (Oh-oh-oh-oh-oh)  
-Safe to shore (Oh-oh-oh-oh-oh)  
+I will trust the promise, You will carry me  
+Safe to shore (Oh-oh-oh-oh-oh)  
+Safe to shore (Oh-oh-oh-oh-oh)  
 Safe to shore (Oh-oh-oh-oh-oh)  
 Safe to shore
 
@@ -548,3 +548,32 @@ From the rooftops I will sing
 I was bound but now I’m free (2x)
 
 **CHORUS**
+
+You Are Holy
+----
+You are holy (you are holy)  
+You are mighty (you are mighty)  
+You are worthy (you are worthy)  
+Worthy of praise (worthy of praise)  
+I will follow (I will follow)  
+I will listen (I will listen)  
+I will love you (I will love you)  
+All of my days (all of my days)
+
+**CHORUS**
+
+*Guys*: I will sing to and worship the King who is worthy  
+I will love and adore Him, I will bow down before Him  
+I will sing to and worship the King who is worthy  
+I will love and adore Him, I will bow down before Him
+
+*Ladies*: You are Lord of lords, You are King of kings  
+You are mighty God, Lord of everything  
+You're Emmanuel, You’re the great I Am  
+You’re the Prince of Peace who is the lamb  
+You're the living God, You’re my saving grace  
+You will reign forever, You are ancient of days  
+You are Alpha, Omega, beginning and end  
+You’re my Savior, Messiah, Redeemer and friend
+
+*Everybody*: You're my Prince of Peace and I will live my life for you

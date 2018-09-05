@@ -5,12 +5,26 @@ Welcome to SJ kids music!
 
 Welcome!
 --------
-Use the menus above to see the lyrics for each kiddo singing group!
+Use the menus above to explore the songs we're learning in Sunday School.  Sound samples are available for some of the songs, and we're adding new song samples as quickly as we can.  Sing along with your kids at home!
 
 Updates and upcoming events
 --------
-Open the [calendar](calendar.md) for all important dates, such as when each kiddo group sings up front.
+Open the [calendar](calendar.md) for all important dates, such as when each  singing group sings up front.
 
-Questions/comments/concerns?
------
-Shoot [Brian](https://brianjohnson.tv/contact) a note.
+---
+
+Site change log
+----
+**Coming soon in September**  
+We'll add audio samples to the [Singing Shepherds](/ss/index.md) page for the following tunes:
+
+* Amazing Love
+* Beautiful One
+* Here I Am to Worship
+* How Great is Our God
+* I Am A C
+* If I Had a Hammer
+* If You've Got Peace in Your Heart
+* Lord I Lift
+* Open the Eyes
+* You Are Holy
