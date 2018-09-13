@@ -3,4 +3,4 @@
 Upcoming
 ------
 
-** Sunday, September 16** - first day of Sunday school!
+** Sunday, September 16** - first day of Sunday school!  Whoohoo!
