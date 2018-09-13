@@ -44,6 +44,8 @@ Worthy is Your name
 
 Amazing Love
 --------
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499440456&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 I’m forgiven because You were forsaken  
 I’m accepted, You were condemned  
 I’m alive and well, Your spirit is within me  
@@ -66,6 +68,8 @@ Jesus You are my King
 
 Beautiful One
 --------
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499442109&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 Wonderful, so wonderful
 Is your unfailing love  
 Your cross has spoken mercy over me  
@@ -299,6 +303,8 @@ How wonderful You are! (*echo*)
 
 Here I Am to Worship
 ------
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499442376&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 Light of the world you stepped down into darkness  
 Opened my eyes let me see  
 Beauty that made this heart adore You  
@@ -326,6 +332,8 @@ To see my sin upon that cross
 
 How Great is Our God
 --------
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499442694&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 The splendor of the King  
 Clothed in majesty  
 Let all the earth rejoice  
@@ -364,6 +372,8 @@ How great is our God
 
 I Am a C
 -----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499443090&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 I am a C  
 I am a C-H  
 I am a C-H-R-I-S-T-I-A-N  
@@ -372,6 +382,8 @@ L-I-V-E E-T-E-R-N-A-L-L-Y
 
 If I Had a Hammer
 ----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499443741&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 **VERSE 1**  
 If I had a hammer tell you what I’d do  
 Build a temple where the spirit runs through  
@@ -403,6 +415,8 @@ Little ones to him belong
 
 If You’ve Got Peace in Your Heart
 -----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499444272&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 **VERSE 1**  
 If you’ve got peace in your heart  
 A peace that will never depart
@@ -418,6 +432,8 @@ His love
 
 Lord I Lift Your Name on High
 ----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499444737&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 **VERSE**  
 Lord I lift Your name on high  
 Lord I love to sing your praises  
@@ -467,6 +483,7 @@ You are the peace in my troubled sea, oh oh
 
 Open the Eyes of My Heart
 -----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499444878&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
 
 **VERSE**  
 Open the eyes of my heart Lord  
@@ -551,6 +568,8 @@ I was bound but now I’m free (2x)
 
 You Are Holy
 ----
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/499446537&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
 You are holy (you are holy)  
 You are mighty (you are mighty)  
 You are worthy (you are worthy)  
