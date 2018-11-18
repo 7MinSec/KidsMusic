@@ -109,21 +109,3 @@ O Jesus! for evermore be Thy name adored
 Word of the Father, now in flesh appearing  
 
 **Chorus**  
-
-## Oh Come Little Children
-*(Singing Shepherds)*
-
-O come, little children, oh come one and come all  
-O come to the manger in Bethlehem's stall  
-And see what our Father in heaven above  
-Has sent to us all on this earth with His love  
-
-O see in the manger so meek and so mild  
-O see in the soft light the heavenly Child  
-In swaddling clothes folded his beauty more sweet   
-Than angels, whose voices his lowly birth greet  
-
-His bed, little children, a manger with hay  
- His mother and Joseph in ecstasy pray  
- The Shepherds in wonder their glad worship bring  
-While chorus of angels sweet Glorias sing  
