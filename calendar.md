@@ -3,4 +3,4 @@
 Upcoming
 ------
 
-** Sunday, September 16** - first day of Sunday school!  Whoohoo!
+**Sunday, December 9** - Christmas program - click [here](christmas.md) for details!
