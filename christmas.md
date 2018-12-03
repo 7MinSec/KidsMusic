@@ -68,12 +68,12 @@ The little Lord Jesus laid down His sweet head
 The stars in the bright sky looked down where He lay  
 The little Lord Jesus asleep on the hay  
 
-**Maddy and Cohen (Solo)**: The cattle are lowing the baby awakes  
+**Maddy and Cohen**: The cattle are lowing the baby awakes  
 The little Lord Jesus no crying He makes  
 I love Thee, Lord Jesus look down from the sky   
 And stay by my cradle till morning is nigh  
 
-**Solo**: Be near me, Lord Jesus I ask Thee to stay   
+**Genna**: Be near me, Lord Jesus I ask Thee to stay   
 Close by me forever and love me I pray  
 Bless all the dear children in you tender care   
 And fit us for heaven to live with thee there  
