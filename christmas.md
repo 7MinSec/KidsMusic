@@ -53,7 +53,7 @@ They looked up and saw a star shining in the East beyond them far
 And to the earth it gave great light, and so it continued both day and night  
 Noel, Noel, Noel, Noel Born is the King of Israel!  
 
-And by the light of that same star three Wise men came from country far  
+And by the light of that same star three wise men came from country far  
 To seek for a King was their intent and to follow the star wherever it went  
 Noel, Noel, Noel, Noel born is the King of Israel!
 
@@ -75,7 +75,7 @@ And stay by my cradle till morning is nigh
 
 **Genna**: Be near me, Lord Jesus I ask Thee to stay   
 Close by me forever and love me I pray  
-Bless all the dear children in you tender care   
+Bless all the dear children in your tender care   
 And fit us for heaven to live with thee there  
 
 **Little Lambs**: Away in a manger no crib for a bed  
