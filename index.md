@@ -9,4 +9,4 @@ Use the menus above to explore the songs we're learning in Sunday School.  Sound
 
 Updates and upcoming events
 --------
-Open the [calendar](calendar.md) for all important dates, such as when each  singing group sings up front.
+Open the [calendar](https://sjkidsmusic.com/calendar.md) for all important dates.
